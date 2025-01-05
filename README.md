@@ -1,7 +1,7 @@
 色花堂 | 98堂 |邀请码下单邀请码下单网址---> https://98t.homes | SeHuaTang | 98Tang | 色花堂邀请码 | 98堂邀请码 | 色花堂金币充值 | 98堂金币充值 | 色花堂金钱 | 98堂金钱 | 色花堂最新地址 | 98堂最新地址 | 色花堂论坛 | 98堂论坛 | 色花堂首页 | 98堂首页 | 色花堂综合讨论区 | 98堂综合讨论区
 能拍就是有货, 放心下单, 自动发货到下单邮箱, 店长邮箱:  sht98t@gmail.com  
 
-店长电报Telegram:  @sehua98t  98堂电报Telegram交流群(点击加群)→ @sehuatang98group  
+店长电报Telegram:  [@sehua98t ](https://t.me/sehua98t) 98堂电报Telegram交流群(点击加群)→ [@sehuatang98group](https://t.me/sehuatang98group)  
 
 98堂(原色花堂)邀请码专卖店下单网站点击→:https://98t.homes
 
